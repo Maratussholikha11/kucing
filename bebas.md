@@ -1,1 +1,2 @@
-terserah
+terserahnya dihapus
+nambah terserah
